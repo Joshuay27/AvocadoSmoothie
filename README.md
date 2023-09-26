@@ -1,7 +1,6 @@
-# AvocadoSmoothie
+# Avocado Smoothie
 <!DOCTYPE html>
 <head>
-<title>
+<title> Why the hate? </title>
     
-</title>
 </head>
