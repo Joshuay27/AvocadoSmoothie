@@ -1,3 +1,4 @@
+# Avocado Smoothies
 ## The Wonderful Green Concoction:
 ![Avocado Smoothie](https://chocolatecoveredkatie.com/wp-content/uploads/2019/07/EASY-Creamy-Avocado-Smoothie-Recipe-500x500.jpg)
 ### Why the Hate?
