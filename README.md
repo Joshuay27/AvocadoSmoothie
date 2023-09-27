@@ -1,7 +1,3 @@
-
-# Avocado Smoothie
-<!DOCTYPE html>
-<head>
-<title>Why the hate?</title>
-I think avocado smoothies get too much hate. People see a green smoothie and are too afraid to try it, even if it's THE most scrumptious drink you'll ever have. "#Stop Avocado hate!"
-</head>
+## Avocado Smoothies:
+### Why the hate?
+Avocado smoothies improve your health. So why do so many people look at me with disgust and confusion when I order one at the local Pho Tasty Restaurant in Cerritos? Is it that big of a deal? After much scientific research, contemplation, and more
