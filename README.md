@@ -12,3 +12,4 @@ Avocado smoothies improve your health. So why do **so many** people look at me w
 All it takes is one sip for you to be completely enlightened by the wonderful taste of avocado smoothies. You **NEED** to try avocado smoothies. 
 ### Future Goals:
 I hope that one day, I can create a society that does not shame avocado smoothie drinkers, but everyone becomes avocado smoothie enjoyers and drink avocado smoothies just as frequently as water. #Avocadosmoothiegang4life
+![Avocado Invasion](https://i.etsystatic.com/9581153/r/il/4e14aa/2289342682/il_570xN.2289342682_opts.jpg)
